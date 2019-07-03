@@ -25,24 +25,24 @@ Matthew 6:33 is an illustration of God’s wisdom. When turn towards Him, He wil
 3. **Testimony**
 > Your story. Opening up yourself to people by giving your story
 4. **Treasure**
-> Your resources. It could be money, car or shoes, etc.
+> Your resources. It could be giving or lending money or shoes, driving someone with your car, etc.
 5. **Temple**
 > Yourself. You are the temple.
 
 ### How to practice being a giver?
 ------
 1. **Learn to listen to God**
-> this is one fundamental of being a giver. If you ever read the book of Proverbs, God wanted us to have wisdom from Him and to be wise. How would you know if it is God who told you to give? If a voice is telling you to give and help, it is from God. The voice of the enemy is always telling us that we don’t have enough for ourselves and that we should not give.
+> This is the fundamental of being a giver. If you ever read the book of Proverbs, God wanted us to have wisdom from Him and to be wise. How would you know if it is God who told you to give? If a voice is telling you to give and help, it is from God. The voice of the enemy is always telling us that we don’t have enough for ourselves and that we should not give.
 2. **Keep track of the good soil** 
 > have you ever tried giving someone or some place a blessing and then suddenly a blessing comes your way? These could be a good soil that you’ve sown into. Keep track of them, and if the voice from God tells you to sow, sow to this soil.
 3. **Try to plow and water the bad soil**
-> bad soil are ones who take advantage of the givers. They tend to extract as many seeds from them and at the end of the day, will not bear fruit. I advice you to stop sowing to this soil, and try to plow them. Share words of God. Hope from Him. Plow them and give them water (e.g. good deeds and word of God), then let God convert them into a good soil. Until then, your sowing to their life will become much better.
+> Bad soil are ones who take advantage of the givers. They tend to extract as many seeds from them and at the end of the day, will not bear fruit. I advice you to stop sowing to this soil, and try to plow them. Share words of God. Hope from Him. Plow them and give them water (e.g. good deeds and word of God), then let God convert them into a good soil. Until then, your sowing to their life will become much better.
 4. **Avoid some soil**
 > There are good soil, and there are bad soil, and there are soil that are good but not ours to sow to. Wait what? It is for the purpose of teaching and encouraging others to sow. In order for other people to learn how to sow, give a place to sow.
 5. **Ask advice**
-> Sometimes, we are guided by our emotions that we tend to sow our resources to the bad soil. First and foremost ask guidance from the Lord as said in number 1, then ask for wisdom from other people. Most of the time we cannot see the bigger picture because we are inside of it. Ask someone who is outside. These are probably the leaders, mentors and friends whom you deeply know.
+> Sometimes, we are guided by our emotions that we tend to sow our seeds to the bad soil. First and foremost ask guidance from the Lord, then ask for wisdom from other people. Most of the time we cannot see the bigger picture because we are inside of it. Ask someone who is outside. These are probably the leaders, mentors and friends whom you deeply know.
 6. **Invest in the Kingdom**
-> Matthew 6:33 is saying that if we invest in the Kingdom. Church works, missions we are investing in the Kingdom. And as the last half says, “and everything shall be added unto you as well”.
+> Matthew 6:33 is saying that if we invest in the Kingdom. Church works and missions are some example of investing in the Kingdom of God. And as the last half says, “and everything shall be added unto you as well”.
 7. **Forget that you give**
 > Matthew 6:3 “But when you give to the needy, do not let your left hand know what your right hand is doing,”. Giving should be done in secret. Always give back the glory to God. I do this by saying to the person, “If someone asks to where this came from, please say that this is from the Lord”.
 8. **Remember that God owes you**
