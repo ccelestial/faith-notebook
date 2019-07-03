@@ -50,3 +50,8 @@ Matthew 6:33 is an illustration of God’s wisdom. When turn towards Him, He wil
 
 ### TODO: Conclusion
 ------
+
+
+### Credits
+------
+Editor: [Mark Chavez](https://github.com/MarkFChavez)
